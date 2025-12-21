@@ -1,1 +1,2 @@
-hi there
+project will start tomorrow, today is learning phase
+          
